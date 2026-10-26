@@ -1,6 +1,6 @@
 
 <p align="center">
- <img width="220" height="142" alt="fire-jennifer" src="https://github.com/user-attachments/assets/f359b622-f8db-4301-9e95-bd76e4cf6967" />
+ <img width="225" height="190" alt="image" src="https://github.com/user-attachments/assets/47101d50-bbd4-405a-9a64-22c1a3777751" />
 
 <p align="center">
   Callout on @Kitandkat500dniuf : WIP
