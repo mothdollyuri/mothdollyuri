@@ -114,6 +114,8 @@
     
   Skins I want: Any of my yumes ( mlf velvette and vaggi! ) or any of my kins.
 
+
+  Add demonbell3 on dc or sign ata if interested!
     
   </details>
 
