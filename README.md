@@ -102,3 +102,21 @@
 
 
 </div>
+
+
+<div align="center">
+  <details>
+    <summary>Skin trade info !</summary>
+  I do any character besides problematic and overly complicated designs.
+
+
+
+    
+  Skins I want: Any of my yumes ( mlf velvette and vaggi! ) or any of my kins.
+
+    
+  </details>
+
+
+</div>
+
